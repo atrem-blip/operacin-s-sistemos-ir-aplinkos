@@ -1,0 +1,1 @@
+# operacin-s-sistemos-ir-aplinkos
